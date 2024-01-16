@@ -14,7 +14,7 @@ f43bf)
 
 ![Screenshot (152)](https://github.com/laharikanagala/Neural-Networks-Assignment--1/assets/144291194/60dfcf5a-8947-41ca-b2cd-b0c1b670adab)
 
-Video Link- 
+Video Link- https://drive.google.com/file/d/1Yfrur1J1955i6kfC2jAGy4radExI2gw2/view?usp=sharing
 
 
 
